@@ -50,11 +50,11 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/8g2t8u.png)
 
-　　　　　　 i suffer **paranoid schizophrenia**, **c-ptsd**, autism and dyslexia. my disorders HEAVILY influence my life, please be aware of them.
+　　　　　i suffer **paranoid schizophrenia**, **c-ptsd**, autism and dyslexia. my disorders HEAVILY influence my life, please be aware of them.
 
 　　　　　　　　　　　　　　　　　　if you're my friend, don't be afraid to ask for my phone number!!!
 
-　　　　　my interests in disturbing things do NOT define me as a person and will not influence my actions. you have no reason to fear me.
+　　　my interests in disturbing things do NOT define me as a person and will not influence my actions. you have no reason to fear me.
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　![I LOVE DUTCH VAN DER LINDE!!!](https://github.com/user-attachments/assets/e3f2ddb4-2f63-4cad-b103-9b16cfd32a09)
 
