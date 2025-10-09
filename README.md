@@ -16,7 +16,7 @@
 
 　　　　　　　　　　　　　　　　　　　 ৶　𖤐　۰　happily promised to my dear ashlyn　 𓂃
 
-　　　　　　　　　　　　᯽  𓄹　　i am a **dark + comshipper**. **minors dni**, i do not find interest in pedophilia or incest  .
+　　　　　　　　　　　　᯽  𓄹　　i am a **dark + comshipper**. **minors dni**, i do not find interest in pedophilia  .
 
 　　　　　　　　　　　　　　　　　　　　　　　　　if you do please block me! :p 
 　
